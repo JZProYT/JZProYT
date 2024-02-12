@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @JZProYT
+- 👀 I’m interested in software and hardware
+- 🌱 I’m currently learning visual basic, trojans...
